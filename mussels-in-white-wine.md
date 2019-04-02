@@ -2,14 +2,14 @@
 
 ## Ingredients
 
-2 cups white wine
-1 tablespoon butter
-1 teaspoon oregano
-1 teaspoon chopped (fresh) parsley
-4 cloves garlic
-2 pounds mussels
-pinch of salt
-pinch of white pepper
+2 cups white wine  
+1 tablespoon butter  
+1 teaspoon oregano  
+1 teaspoon chopped (fresh) parsley  
+4 cloves garlic  
+2 pounds mussels  
+pinch of salt  
+pinch of white pepper  
 
 ## Instructions
 
