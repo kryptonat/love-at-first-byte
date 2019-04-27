@@ -20,7 +20,7 @@ pinch of black pepper
 6. (Optional) Toast the pumpkin seeds in the oven or on a frying pan, careful not to burn them. Set aside and allow to cool.
 7. Remove from the oven, crumble over feta and garnish with fresh chili, parsley and pumpkin seeds. Serve immediately.
 
-## Note
+## Notes
 
 * You can use whatever nuts you prefer but just be aware that you might need to adjust the cooking time i.e. toss them in partway through roasting. Walnuts hold up well in the oven for the full roasting time. Almonds, peanuts and cashews will also be fine for the full time. If using pine nuts, sunflower seeds or pepitas (or other small nuts), add them halfway through the roasting time.
 * If you use brown sugar instead of honey or maple syrup, mix it with the olive oil before pouring over the pumpkin.
