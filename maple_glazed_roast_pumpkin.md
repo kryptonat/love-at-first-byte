@@ -9,14 +9,16 @@
 1 tbsp dried chili flakes, adjust to taste - flavour becomes milder when roasted  
 1/2 tsp salt  
 pinch of black pepper  
+1/4 cup pumpkin seeds (optional)  
 
 ## Instructions
-1. reheat oven to 200C/390F.
+1. Preheat oven to 200C/390F.
 2. Peel and dice the pumpkin into 1"/2.5cm cubes (no need to peel if using squash or butternut pumpkin). Reserve the pumpkin seeds and give them a quick rinse under the tap.
 3. Place the pumpkin, pumpkin seeds, onion and walnuts onto a large baking tray. Drizzle with olive oil and maple syrup, then use an egg flip to toss the pumpkin so it is evenly coated.
 4. Sprinkle the pumpkin with the dried chilli flakes, salt and pepper.
 5. Roast for 25 minutes, or until the pumpkin is browned and cooked through. Toss once at around 15 minutes.
-6. Remove from the oven, crumble over feta and garnish with fresh chili and parsley, if using. Serve immediately.
+6. (Optional) Toast the pumpkin seeds in the oven or on a frying pan, careful not to burn them. Set aside and allow to cool.
+7. Remove from the oven, crumble over feta and garnish with fresh chili, parsley and pumpkin seeds. Serve immediately.
 
 ## Note
 
