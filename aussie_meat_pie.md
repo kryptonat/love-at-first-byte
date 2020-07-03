@@ -25,10 +25,10 @@
 If making shortcrust pastry, use fat flour ratio of 1:2 e.g. 115g of unsalted butter and 230g of all purpose flour. You can adjust the below amounts to fit the number of pies being made.
  
 ### Ingredients
-1. 115g unsalted butter (cold)
-1. 230g all purpose flour
-1. 1/2 teaspoon of kosher salt
-2-3 tablespoons of cold water from the fridge
+115g unsalted butter (cold)  
+230g all purpose flour  
+1/2 teaspoon of kosher salt  
+2-3 tablespoons of cold water from the fridge  
 
 ### Instructions
 1. Cut cold butter into cubes. Place butter into freezer for a few minutes.
