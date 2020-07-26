@@ -1,7 +1,7 @@
 # Boeuf Bourguignon
 
 ## Ingredients
-1 lb cubed stewing beef prepared at Olivier's (Paleron, Chuck or any Shoulder cuts into 2 inches)  
+1 lb cubed stewing beef i.e. Paleron, Chuck (Macreuse, Basse Cote) any Shoulder cuts into 2 inches  
 7 oz lightly smoked bacon bits or bacon strips, cut into small pieces  
 4 oz button mushrooms  
 2 cloves of garlic, peeled and sliced  
