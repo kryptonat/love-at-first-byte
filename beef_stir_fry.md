@@ -3,8 +3,8 @@
 ## Ingredients
 
 1 pound flank steak, trimmed, cut into 2- to 2 ½ -inch strips with grain, each strip cut ­crosswise against grain into ¼-inch-thick slices  
-1 red bell pepper, stemmed, seeded, and cut into 1/4-inch-wide strips  
-1 green bell pepper, stemmed, seeded, and cut into 1/4-inch-wide strips  
+1 red bell pepper, stemmed, seeded, and cut into ¼-inch-wide strips  
+1 green bell pepper, stemmed, seeded, and cut into ¼-inch-wide strips  
 6 scallions, white parts sliced thin on bias, green parts cut into 2-inch pieces  
 3 garlic cloves, minced  
 1 tablespoon grated fresh ginger  
@@ -30,7 +30,7 @@
 1. Whisk sauce to recombine. Add to skillet and cook, stirring constantly, until sauce has thickened, about 30 seconds. Serve immediately.
 
 ## Notes
-* Cut steak with grain into 2- to 2 1/2 -inch strips, then cut each strip crosswise against grain into 1/4-inch-thick slices.
+* Cut steak with grain into 2- to 2 ½ -inch strips, then cut each strip crosswise against grain into ¼-inch-thick slices.
 * The vegetables and aromatics can be prepared while the beef is marinating. Serve with steamed white rice.
 * Be ready for quick cooking: Prep ingredients in advance.
 * For even browning, use a nonstick skillet, not a wok.
