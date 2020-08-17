@@ -5,11 +5,11 @@
 1 large brown onion, finely chopped  
 500g lean beef mince  
 1 tablespoon cornflour  
-3/4 cup Massel beef stock  
-3/4 cup tomato sauce  
+3/4 cup beef stock  
+1/2 cup tomato sauce  
 2 tablespoons Worcestershire sauce  
 1 tablespoon barbecue sauce  
-1 teaspoon Vegemite  
+1/2 teaspoon Vegemite  
 2 sheets frozen shortcrust pastry, thawed  
 2 sheets frozen puff pastry, thawed  
 1 egg, beaten  
