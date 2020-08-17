@@ -20,7 +20,7 @@
 1. Mix cornflour and 1 tablespoon of stock to form a paste. 
 1. Add stock mixture, sauces and Vegemite to mince. 
 1. Bring to the boil. Reduce heat to medium-low. Simmer for 8 minutes or until thick. Cool.
-1. Preheat oven to 220°C. Place a baking tray into oven. Grease 4 x 8cm base measurement pie pans.
+1. Preheat oven to 220°C (428°F). Place a baking tray into oven. Grease 4 x 8cm base measurement pie pans.
 1. Cut 4 x 15cm circles from shortcrust pastry. Use to line bases and sides of pans. Fill with mince. Brush rims with water. Cut 4 x 15cm circles from puff pastry. Place over meat. Press to seal. Trim. Brush with egg. Season.
 1. Place pies onto hot tray. Bake for 20 to 25 minutes or until golden. Serve.
 
@@ -39,3 +39,6 @@ If making shortcrust pastry, use fat flour ratio of 1:2 e.g. 115g of unsalted bu
 1. On the low setting of the stand mixer, add the butter from the freezer.
 1. Add cold water, one tablespoon at a time until mixture is soft and combined.
 1. Wrap pastry in plastic wrap and store in fridge until ready to be used.
+
+## Notes
+* Blind bake the shortcust pastry in the oven for 15-20min at 220°C (428°F) to keep pie crust from becoming soggy due to the wet filling.
