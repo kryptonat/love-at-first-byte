@@ -5,7 +5,7 @@
 7g active dry yeast  
 2 tsp caster sugar (or granulated or super fine white sugar)  
 1 cup warm water (Not boiling. Just tap water is fine)  
-3 cups bread flour  
+3 cups or 360g bread flour  
 1 tsp sea salt  
 1 tbsp olive oil (or sub with any other oil)  
 1 egg, lightly beaten  
