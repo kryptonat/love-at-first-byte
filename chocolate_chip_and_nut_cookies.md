@@ -1,16 +1,16 @@
 # Chocolate chip and nut cookies
 
 ## Ingredients
-4 cups sifted all-purpose flour
-1 tsp baking soda
-1 tsp salt
-3 sticks (1½ cups) unsalted butter, softened
-1½ cups light brown sugar
-1 cup granulated sugar
-2 large eggs
-1 tbsp vanilla extract
-2 cups semi-sweet chocolate chips
-2 cups of nuts (walnut, pecans or macadamias)
+4 cups sifted all-purpose flour  
+1 tsp baking soda  
+1 tsp salt  
+3 sticks (1½ cups) unsalted butter, softened  
+1½ cups light brown sugar  
+½ cup granulated sugar  
+2 large eggs  
+1 tbsp vanilla extract  
+2 cups semi-sweet chocolate chips  
+2 cups of nuts (walnut, pecans or macadamias)  
 
 
 ## Instructions
