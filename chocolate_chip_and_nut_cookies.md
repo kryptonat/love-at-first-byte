@@ -5,7 +5,8 @@
 1 tsp baking soda  
 1 tsp salt  
 3 sticks (1½ cups) unsalted butter, softened  
-1½ cups light brown sugar  
+2 cups light brown sugar  
+1½ cup dark brown sugar
 ½ cup granulated sugar  
 2 large eggs  
 1 tbsp vanilla extract  
