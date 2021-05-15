@@ -1,13 +1,13 @@
 # Chocolate chip and nut cookies
 
 ## Ingredients
-4 cups sifted all-purpose flour  
+4 cups (480 g) sifted all-purpose flour  
 1 tsp baking soda  
 1 tsp salt  
 3 sticks (1½ cups) unsalted butter, softened  
-2 cups light brown sugar  
-1½ cup dark brown sugar  
-½ cup granulated sugar  
+2 cups (400g) light brown sugar  
+1½ cup (300 g) dark brown sugar  
+½ cup (113 g) granulated sugar  
 2 large eggs  
 1 tbsp vanilla extract  
 2 cups semi-sweet chocolate chips  
