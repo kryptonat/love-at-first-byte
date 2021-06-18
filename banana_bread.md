@@ -2,7 +2,7 @@
 
 ## Ingredients
 
-1 1/2 cup self raising flour  
+1 1/2 cup self raising flour (or 1 1/2 cups white flour + 2 1/4 tsp baking powder + 3/4 tsp fine sea salt)  
 1 teaspoon baking soda  
 1/2 teaspoon salt  
 1/2 teaspoon cinnamon  
@@ -25,4 +25,4 @@
 
 ### Notes
 * Do NOT over mix this batter. I would not use an electric mixer – just a few circles of the wrist while incorporating the ingredients.
-* Do NOT overbake. The moist, banana-y center should be soft and crumbly.
+* Do NOT overbake. The moist, banana-y center should be soft and crumbly.  
